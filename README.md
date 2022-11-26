@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Oenfs7777
 - 👀 I’m interested in Games and Music, and technology. 
-- 🌱 I’m currently learning Unity Engine and Japanese. 
+- 🌱 I’m currently learning Unity Engine, Music and Japanese. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
